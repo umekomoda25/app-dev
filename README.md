@@ -3,6 +3,8 @@
 **Synopsis:**
 Youth of May is a poignant South Korean drama set against the backdrop of the 1980 Gwangju Uprising, focusing on the love story between medical student Hwang Hee-tae and nurse Kim Myung-hee.
 
+![poster](OIP.webp)
+
 ---
 
 **Cast**
