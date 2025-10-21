@@ -17,7 +17,4 @@ The acting was phenomenal. Lee Do-hyun and Go Min-si brought so much depth to th
 
 As a student, I found Youth of May incredibly inspiring. It made me reflect on how young people like me once had to fight for basic rights and freedom. It’s a drama that stays with you long after the credits roll.
 
-![alt text](OIP.webp)
-
-**Trailer**
 [Trailer](https://www.bing.com/ck/a?!&&p=4b90a86817628d8749fb15e5ac14c6cb364fc9060c3de05da5393423738754fdJmltdHM9MTc2MDkxODQwMA&ptn=3&ver=2&hsh=4&fclid=2a87e094-c17f-69ee-2e4d-f618c0a368e4&psq=youth+of+may+trailer&u=a1aHR0cHM6Ly93d3cuZGFpbHltb3Rpb24uY29tL3ZpZGVvL3g4MXNnMzI)
