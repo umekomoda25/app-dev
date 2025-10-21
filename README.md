@@ -6,6 +6,12 @@ My first repository
 **Synopsis**
 Youth of May is a poignant South Korean drama set against the backdrop of the 1980 Gwangju Uprising, focusing on the love story between medical student Hwang Hee-tae and nurse Kim Myung-hee.
 
+**Cast**
+- Lee Do-Hyun
+- Go Min-Si
+- Lee Sang-Yi
+- Keum Sae-Rok
+
 **Review**
 As a college student who loves both history and K-dramas, Youth of May hit me right in the feels. Set during the Gwangju Uprising in South Korea in May 1980, this 12-episode drama blends a tender love story with a powerful historical backdrop, making it both emotionally moving and educational.
 
