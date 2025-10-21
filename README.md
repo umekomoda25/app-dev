@@ -12,7 +12,7 @@ Youth of May is a poignant South Korean drama set against the backdrop of the 19
 - Go Min-Si
 - Lee Sang-Yi
 - Keum Sae-Rok
-- 
+
 ---
 
 **Review:**
